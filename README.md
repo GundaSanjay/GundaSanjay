@@ -1,4 +1,5 @@
-![White Minimalist Profile LinkedIn Banner](https://github.com/user-attachments/assets/869cf2e3-1e7e-4d2b-b492-ef3e620702a2)
+![White Minimalist Profile LinkedIn Banner](https://github.com/user-attachments/assets/66681b2f-446e-47cd-8ce6-c1206919003d)
+
 
 
 # 💫 About Me:
